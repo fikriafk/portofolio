@@ -1,2 +1,2 @@
 # portofolio
-this is my portofolio. i will always my career of learning here
+this is my portofolio. i will always update my career of learning here
